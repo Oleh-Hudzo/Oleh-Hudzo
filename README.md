@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hudzo.oleh@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1sgROMpWrw0vI8nQRToZwxwCOutFjmbDb/view?usp=sharing](https://drive.google.com/file/d/1sgROMpWrw0vI8nQRToZwxwCOutFjmbDb/view?usp=sharing)
+- 📄 Know about my experiences [link](https://drive.google.com/file/d/1sgROMpWrw0vI8nQRToZwxwCOutFjmbDb/view?usp=sharing)
 
 - ⚡ Fun fact **I like touching grass**
 
